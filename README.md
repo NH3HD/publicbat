@@ -1,2 +1,2 @@
 # publicbat
-for myself still
+just using it yk
